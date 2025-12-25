@@ -1,3 +1,3 @@
-hey i'm thalassus
+hey
 
 multifandom roleplay chat (18+, SFW only): https://chatzy.com/39812482174830
