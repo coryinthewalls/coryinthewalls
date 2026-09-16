@@ -5,6 +5,7 @@ https://dollsworld.bearblog.dev/ here's some art :)
   <br>
 
 ![weaver](https://i.makeagif.com/media/9-16-2026/WukrNE.gif)
+
 ![ted](https://files.catbox.moe/hqi71r.gif)
 
 </details>
