@@ -5,7 +5,7 @@
 <span aria-hidden="true">∘₊✧──────────────────────✦───────────────────────✧₊∘</span>
 
  
-# [check out my art](https://dollsworld.bearblog.dev/)
+## [check out my art](https://dollsworld.bearblog.dev/)
 
 <details>
   <summary>click 4 gifs</summary>
