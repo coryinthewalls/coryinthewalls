@@ -1,4 +1,6 @@
-<p align="center">
+<br>
+
+<div align="center">
 
 <span aria-hidden="true">∘₊✧──────────────────────✦───────────────────────✧₊∘</span>
 
@@ -66,4 +68,5 @@ https://dollsworld.bearblog.dev/ here's some art :)
 
 ∘₊✧──────────────────────✦───────────────────────✧₊∘</span>
 
-</p>
+</div>
+<br>
