@@ -11,7 +11,7 @@
   <summary>click 4 gifs</summary>
 <br>
  
-![weaver](https://i.makeagif.com/media/9-16-2026/WukrNE.gif)
+[![weaver](https://i.makeagif.com/media/9-16-2026/WukrNE.gif)](https://youtu.be/hr-I6-gxecg&t=56)
 
 </details>
 
