@@ -3,13 +3,11 @@
  
 https://dollsworld.bearblog.dev/ here's some art :)
 
-<details>
-  <summary>gifs below</summary>
-  <br>
-
+<section style="text-align: center">
+ 
 ![weaver](https://i.makeagif.com/media/9-16-2026/WukrNE.gif)
 
-</details>
+</section>
 
 ∘₊✧──────────────────────────────────────────────✧₊∘
 
