@@ -4,6 +4,7 @@
 
 <span aria-hidden="true">∘₊✧──────────────────────✦───────────────────────✧₊∘</span>
 
+### [Support Palestine](https://freewaystohelppalistine.straw.page/)
  
 ### [check out my art](https://dollsworld.bearblog.dev/)
 
