@@ -8,9 +8,6 @@
  
 ### [check out my art](https://dollsworld.bearblog.dev/)
 
-### [listen to my radio](https://radiopit.fm/share/d709b498-5e3a-4b3f-8fb3-cfddbf1cbfbb)
-(just click 'start listening', import the playlist, and listen to 'bel's stream'!)
-
 <details>
   <summary>click 4 gifs</summary>
 <br>
