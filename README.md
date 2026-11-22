@@ -4,11 +4,11 @@
 
 <span aria-hidden="true">∘₊✧──────────────────────✦───────────────────────✧₊∘</span>
 
-Me
+**Me**
 
 ### [check out my art](https://dollsworld.bearblog.dev/)
 
-Fundraisers & Mutual Aid
+**Fundraisers & Mutual Aid**
 
 ### [Support Palestine](https://freewaystohelppalistine.straw.page/)
 
