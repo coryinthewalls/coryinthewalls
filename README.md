@@ -8,8 +8,6 @@
 
 ### [check out my art](https://dollsworld.bearblog.dev/)
 
-**Fundraisers & Mutual Aid**
-
 ### [Support Palestine](https://freewaystohelppalistine.straw.page/)
 
 ### [More support links](https://www.patreon.com/timb3rart3603/posts/links-to-help-152524206)
