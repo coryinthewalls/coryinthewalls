@@ -4,13 +4,11 @@
 
 <span aria-hidden="true">∘₊✧──────────────────────✦───────────────────────✧₊∘</span>
 
-**Me**
-
 ### [check out my art](https://dollsworld.bearblog.dev/)
 
 ### [Support Palestine](https://freewaystohelppalistine.straw.page/)
 
-### [More support links](https://www.patreon.com/timb3rart3603/posts/links-to-help-152524206)
+### [More fundraisers](https://www.patreon.com/timb3rart3603/posts/links-to-help-152524206)
 
 <details>
   <summary>click 4 gifs</summary>
